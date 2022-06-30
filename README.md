@@ -1,1 +1,1 @@
-Link to visit the site -  http://juhisharma.me/mysite/
+Link to visit the site -  http://juhik24.github.io/mysite/
